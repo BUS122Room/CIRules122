@@ -20,6 +20,6 @@ If you are caught breaking these rules you will be **PUNISHED**!
 
  
 
-*These computers are managed by Braydon, Reese, and Zach. Contact one of them for asistance!
+*These computers are managed by Braydon, Reese, and Zach. Contact one of them for assistance!
 
  
