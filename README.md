@@ -16,7 +16,7 @@ If you are caught breaking these rules you will be **PUNISHED**!
 
 6. Do **NOT** change the background, pointer settings, time, etc.
 
-7. Do **NOT** save your files to these computers use a FLASH DRIVE. I will be cleaning these computers off weekly.
+7. Do **NOT** save your files to these computers use a FLASH DRIVE. I will be cleaning these computers off at some point each week.
 
  
 
