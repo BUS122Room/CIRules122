@@ -22,4 +22,6 @@ If you are caught breaking these rules you will be **PUNISHED**!
 
 *These computers are managed by Braydon, Reese, and Zach. Contact one of them for assistance!
 
- 
+ ## Computer Information 
+ 
+ The **PASSWORD** for the computer's webpanel () is WMhs2014! and user **BUS122Room** as the username.
