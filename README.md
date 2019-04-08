@@ -18,6 +18,6 @@ If you are caught breaking these rules you will be **PUNISHED**!
 
 7. Do **NOT** save your files to these computers use a FLASH DRIVE. I will be cleaning these computers off at some point each week.
 
- <h1> Computer Information </h1>
+ <h2> Computer Information </h2>
  
 A new webfilter has been installed and the username is **BUS122Room** and the password is **WMhs2014!** 
